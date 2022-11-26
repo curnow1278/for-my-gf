@@ -7,6 +7,8 @@
 
 ### <font color=Khaki> 每次，老婆都能在我写作业写不下去的时候安慰我：
 
+  
+  
 </font>![pic1](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement1.png?raw=true)
 ![pic2](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement2.png?raw=true)
 ![pic3](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement3.png?raw=true)
