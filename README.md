@@ -5,7 +5,9 @@
 > 我们都知道，初三的学业压力**超级超级重**，压得我们喘不过气来。
 > 但是呢，因为某一个人，我**总能**在最难熬的时候撑过来~
 
-### <font color=Khaki> 每次，老婆都能在我写作业写不下去的时候安慰我：</font>![pic1](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement1.png?raw=true)
+### <font color=Khaki> 每次，老婆都能在我写作业写不下去的时候安慰我：
+
+</font>![pic1](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement1.png?raw=true)
 ![pic2](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement2.png?raw=true)
 ![pic3](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement3.png?raw=true)
 
