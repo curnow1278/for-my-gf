@@ -56,3 +56,8 @@ Date:2022/11/26
 <font color=crimson>嘿嘿 老婆你看我们作弊多高级（小声</font>
 
 **_我他妈考试的时候又开始腿过敏了！！！！！杀了我吧！！！！！！！！！！！！_**
+
+老婆老婆，我今晚估计得熬夜了呜呜呜 我好累 好累好累 我现在也不想写作业 给你提供一点便利叭~
+我准备来改进一下这个网站欧 咳咳先从最简单的看图片开始
+老婆试试这个
+[点我进链接看图片](https://raw.githubusercontent.com/curnow1278/for-my-gf.github.io/main/gf's_encouragement1.png)
