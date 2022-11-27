@@ -9,7 +9,7 @@
 
 [来自宝贝的加油~](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement1.png?raw=true)
 [来自女朋友的加油~](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement2.png?raw=true)
-![来自老婆的加油~](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement3.png?raw=true)
+[来自老婆的加油~](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement3.png?raw=true)
 
 <font color=MediumAquaMarine>_(图片改为链接了，老婆试试~)_</font>
 
