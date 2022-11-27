@@ -5,19 +5,17 @@
 > 我们都知道，初三的学业压力**超级超级重**，压得我们喘不过气来。
 > 但是呢，因为某一个人，我**总能**在最难熬的时候撑过来~
 
-### <font color=Khaki> 每次，老婆都能在我写作业写不下去的时候安慰我：
+### <font color=Khaki> 每次，老婆都能在我写作业写不下去的时候安慰我：</font>
 
-  
-  
-</font>![pic1](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement1.png?raw=true)
-![pic2](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement2.png?raw=true)
-![pic3](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement3.png?raw=true)
+[来自宝贝的加油~](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement1.png?raw=true)
+[来自女朋友的加油~](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement2.png?raw=true)
+![来自老婆的加油~](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_encouragement3.png?raw=true)
 
-<font color=MediumAquaMarine>_(咳咳图有一点长，希望宝贝不会觉得刷屏了~)_</font>
+<font color=MediumAquaMarine>_(图片改为链接了，老婆试试~)_</font>
 
 ### _You always show your love for me._
 #### <font color=LightSalmon>咳咳咳我敢打赌，我们之间表达爱意的句子有好多好多条(根据不完全统计，电脑上的有472条，手机上还有几百条，例见下图)</font>
-![I_Love_You](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_I_Love_You.png?raw=true)
+[老婆的"I Love You~"](https://github.com/curnow1278/for-my-gf.github.io/blob/main/gf's_I_Love_You.png?raw=true)
 
 > *tip: 宝贝你知道嘛，每次你说“我爱你”，我真的可以贴切地感受到宝贝对我的爱噢~*
 
@@ -59,5 +57,4 @@ Date:2022/11/26
 
 老婆老婆，我今晚估计得熬夜了呜呜呜 我好累 好累好累 我现在也不想写作业 给你提供一点便利叭~
 我准备来改进一下这个网站欧 咳咳先从最简单的看图片开始
-老婆试试这个
-[点我进链接看图片](https://raw.githubusercontent.com/curnow1278/for-my-gf.github.io/main/gf's_encouragement1.png)
+老婆试试上面的链接欧
