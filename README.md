@@ -162,3 +162,7 @@ mua 我爱你 真的很爱很爱你 我每天都很想很想你 现在也是
 "mamma mia let me go"
 "Beelzebub has a devil put aside for me, for me , for meeeeeeeeeeeeeeee"
 好符合我的心态c（哼 这歌词都是我手打的
+
+嘿嘿 真巧
+救命 我现在听的歌 更符合我的心态了
+I want to break free~~~~~~~~~~~~
