@@ -147,3 +147,18 @@ mua 我爱你 真的很爱很爱你 我每天都很想很想你 现在也是
 时间：22:29
 
 <font color=Crimson size=5>老婆！！！！！我物理做完啦！！！！快上线！！！</font>23:20
+
+救命 我现在听的Queen的Bohemian Rhapsody
+"But I'm just a poor boy, nobody loves me"
+"He's just a poor boy from a poor family, spare him his life from this monstrosity"
+"Easy come, easy go, will you let me go?"
+"Bismillah! No, we will not let you go" "let him go!"
+"Bismillah! We will not let you go" "let him go!"
+"Bismillah! We will not let you go" "let me go!"
+"will not let you go" "let me go!"
+"never, never, never, never let me go-o-o-o-o-oh"
+"No, no, no, no, no, no!"
+"Oh mamma mia mamma mia"
+"mamma mia let me go"
+"Beelzebub has a devil put aside for me, for me , for meeeeeeeeeeeeeeee"
+好符合我的心态c（哼 这歌词都是我手打的
